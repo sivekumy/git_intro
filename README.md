@@ -1,1 +1,2 @@
-Eric Ianni 
+Eric Ianni
+sivekumy@oregonstate.edu
